@@ -1,1 +1,1 @@
-# main-py1
+bu bir meme sözlüğüdür
